@@ -1,6 +1,7 @@
 PROJEYİ ANLATTIĞIMIZ VİDEONUN LİNKİ: https://drive.google.com/drive/folders/1EvGL1jNX44FNrV1Zgc7FuTTHBiAA2X7Z?usp=sharing
 
-
+Admin E-Mail: helin@gmail.com Password: admin123
+User E-Mail: rabia@gmail.com Password: admin123
 
 
 
